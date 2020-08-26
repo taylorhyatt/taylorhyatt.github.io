@@ -1,2 +1,0 @@
-# taylorhyatt.github.io
- guitarshop 
